@@ -1,0 +1,1 @@
+gamarjoba vinc amowmebs chems git habs rogorc chans exla me maklia bevri dge me imitom maklia bevri dge rom pailebi gamipuwda anu erorebs migdebda da arc mishvebda pailebshi xoda me nel nela daviwkeb shevsebas da gamovasworeb amas!
