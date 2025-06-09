@@ -1,1 +1,1 @@
-# no classwork
+fullname = "nikolozi javaxishvili"
